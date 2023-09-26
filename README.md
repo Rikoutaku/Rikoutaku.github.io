@@ -1,0 +1,1 @@
+# Rikoutaku.github.io
